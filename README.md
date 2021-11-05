@@ -15,6 +15,8 @@
 
 #### you are not gonna get banned. used to get master
 
+![2u0tf5-_online-video-cutter.com_.gif](2u0tf5-_online-video-cutter.com_.gif)
+
 ![Split1gate](https://media.discordapp.net/attachments/824963527529594910/874616224850518056/unknown.png?width=1182&height=665)
 
 ![Splitgate](https://media.discordapp.net/attachments/874613530396082176/905313971173732352/unknown.png?width=1182&height=665)
